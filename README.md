@@ -1,2 +1,2 @@
-# OfferedErmine92.github.io
-I have no idea what I'm doing here, ok time to put random stuff
+#this is a website i guess...
+made this because why not, wanna help me out?
